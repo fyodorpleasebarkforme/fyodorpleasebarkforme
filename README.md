@@ -1,3 +1,3 @@
-if you love love LOVE history and geography be my friend NOWWWW ASAP!!!!!!
-![17498404655171527550358505417068](https://github.com/user-attachments/assets/1a8c1553-2a38-4892-80cc-2cce8d2ca6c9)
+just a freak
 
+](https://tenor.com/view/blue-lock-shidou-shidou-ryusei-ryusei-shidou-tweaking-gif-13546436431542795708)
